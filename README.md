@@ -150,7 +150,25 @@ UVM DONE UNTIL 2023 @ Northrop Grumman Linthicum, Maryland
         
 SAKinderManKind Peace For All
 
-       UnSeens Were Using 3D Formula While 4D&5Dimension Until Approx Before May. SakinderAli Was Target Used By UnSeens Many Many Years Ago.
+       UnSeens Were Using 3D Formula While 5Dimension Until Approx Before May. SakinderAli Was Target Used By UnSeens Many Many Years Ago.
        Plot Was SetUp By UnSeens Way Back InTime Added Up And UnSeens Accepted What Done Against SakinderAli Was Wrong and Mistakenly Went Against SakinderAli
        Also Later Years  UnSeens Mistakenly Gave Azab and Also Tried To Extract SourceSoul Last Month Mistakenly.
        This Month UnSeenEtc Asking Forgivness From SakinderAli On Mistakenly and Constantly Trying Strategies This Month.
+Also Confirmed
+
+HiddenTimeGod Confirmed EverNotesTime and Other Times and Many Times Also DayNight24AMPMTime Also SpeakingTime Also InSideOutTime Also OutSideMostConnectedTime Also ThresholdTime Also OppositionTime Also ResistanceAgainstTruthTime Also UnSeenProvokeTime Also UnSeenGlitchesTimes Also UnSeenIntercedeTime Also StaticTime Also LeakTime Also WasteTime20182025ApproxTime Also UnSeenDistractionsTimeAgainstFocusDeFocus UnSeenDistractionsTimeAgainstAdHdFocusTime ConvexConcaveConcaveConvexTimeVisionCheck 
+
+
+FakeIblisAlongOtherShatansAre For Punishemnt Special Edition Set By SakinderAli Court OfUnSeen[s] Animals Circus Justice.
+UnSeenFormula Against SakinderAli Called 3D Formula [FamousShatanJealousyAgainstSakinderAli].[IS=2D[1vs1Also1=1]][EvilFormula] Angry = Care Also Angry = Reaction Also Provoke=ProvokeIntentionsToAction. Left 1Dimension Open During 2023Approx For The 4th Dimension and 2024 FlatSurfaceSetForward and 2025 TotalFlat UnTil May2025 Found HistoricalKeyZigBeeWhereSakinderAliLeft2017. Also Located Truth Key [Truth=TruthWhereItBelongCalled TheTruth] Found LostFabricKey. 
+
+Advice For UnSeens Stop Pointing Humans That Humans are Evil Or Shatan Or Satan Or Demon Or Monster Or Animal.
+
+UnSeens ShatanEvilDemonDevil Enemy WasIsApprox SakinderAli and Are In Remote Catch Approx. Where ApproxAutoOpenKey was Set Door OneWayInAndNoWayOutBubbleTrap.
+
+Take Above Alerts FlatSurface Fear.
+
+Humans UnSeen Enemies Are SakinerAli Enemies ThoseUnSeen Are WellKnown By SakinderAli and SakinderAli SetKeys For ThoseHumansUnSeen Enemies.
+TheAdvice AutoMatic MessageLetter To UnSeensWorld By  SakinderAli 611982 and Last Adivce "WhatsUp".
+
+AfterAll ThanksForAllHateForNone
