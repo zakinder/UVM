@@ -148,4 +148,5 @@ UVM DONE UNTIL 2023 @ Northrop Grumman Linthicum, Maryland
         Uber Vs SakinderAli CheckMate Time
         TimeCommunication Vs SakinderAli CheckMate Time
         
-TODAY 5/172025 Found that there is someone in UnSeens that Had Eye On Logical_UVM there keyword mention was extraction phase and that UnSeen Tried to Implement On SakinderAli To Get Hunger Title Of UVM Even Tried To Extract Soul and was so UnSeenPathetic On Human. Who Ever Done Tried to do SoulExtraction Was Against LawTime and Sakinder Ali Who Amongs are In UnSeens are Cheapest Existance Amongs All Time Are UnSeens That Verification of UVM Confirmed Humans InSideOut Are The Best Else UnSeens Are Junk.
+SAKinderManKind Peace For All
+       
