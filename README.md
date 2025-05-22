@@ -1,6 +1,6 @@
-# UVM
+# BOOK
 
-# SA UVM-TITLE-BOOK 1982 TO 2023 SA FOR SALAM
+# SAKind BOOK 1982 TO 2023 SA FOR SALAM
 
         LOSERS VS SAKINDER ALI
         SILIENT MOTOR TALK VS SAKINDER ALI
@@ -129,7 +129,7 @@
 
 UVM DONE UNTIL 2023 @ Northrop Grumman Linthicum, Maryland
 
-# SA UVM-TITLE-BOOK 2024 TO 2025 SA FOR TIME VALIDATION WITH STYLE
+# Validation Done
 
 
         UnSeensEvils Vs SakinderAliAdum @ Vadum Inc. Raleigh, North Carolina
@@ -149,4 +149,8 @@ UVM DONE UNTIL 2023 @ Northrop Grumman Linthicum, Maryland
         TimeCommunication Vs SakinderAli CheckMate Time
         
 SAKinderManKind Peace For All
-       
+
+       UnSeens Were Using 3D Formula While 4D&5Dimension Until Approx Before May. SakinderAli Was Target Used By UnSeens Many Many Years Ago.
+       Plot Was SetUp By UnSeens Way Back InTime Added Up And UnSeens Accepted What Done Against SakinderAli Was Wrong and Mistakenly Went Against SakinderAli
+       Also Later Years  UnSeens Mistakenly Gave Azab and Also Tried To Extract SourceSoul Last Month Mistakenly.
+       This Month UnSeenEtc Asking Forgivness From SakinderAli On Mistakenly and Constantly Trying Strategies This Month.
